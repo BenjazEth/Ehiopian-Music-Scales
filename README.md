@@ -149,3 +149,19 @@ The vocal organ which consists of lungs, larynx, pharunx, nose, mouth as means o
 
 
 
+Works Cited
+
+Abate, Ezra. Ethiopian Kiñit: Analysis of the Formation and Structure of the Ethiopian Scale System
+Retrieved from: http://portal.svt.ntnu.no/sites/ices16/Proceedings/Volume%204/Ezra%20Abate%20-%20Ethiopian%20Kiñit.pdf
+
+Astatke, Mulatu. Red Bull Music Academy interview
+Retrieved from: http://www.redbullmusicacademy.com/video-archive/transcript/mulatu_astatke__ethiopian_knight/transcript
+
+Bekele, Zenebe. A Preview of Ethiopian Music
+Retrieved from: http://www.ethiopians.com/eth_musika.htm
+
+Mekonnon, Danny A. Ethio-groove on the World Stage: Music, Mobility, Mediation
+Retrieved from: Callaloo, Volume 33, Number 1, Winter 2010
+
+African Ear
+Retrieved from: https://www.bbc.co.uk/sounds/play/p033k34f
