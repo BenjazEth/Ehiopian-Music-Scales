@@ -85,3 +85,67 @@ Natural Minor scale: C - D - Eb - F - G - Ab - Bb - C. This is commonly known as
 
 Musicians in the southern parts of Ethiopia make great use of pentatonic and diatonic scales.
 
+#Characterstics of song types: 
+
+A) Ingurguro is sung mostly in high falsetto vocal style by female singers and deep vocal range for male singers. Aster AwoQe´s 
+character of music and Kassa Tessema´s Kirrar music are some examples. We see a combination of musical styles in
+Aster´s music (Ingurguro character + Zefen rhythm) that makes the singer stylist of the modern Ethiopian music but Kassa´s music is a very traditional style of ingurguro.
+
+B) Mezmur is sung in a full voice - woreb songs and songs that are used after sport games, etc, are of this sort.
+
+C) Zefen is sung in a relaxed manner accompanied by a dance, dram, Iskista, Regeda etc.
+
+Qualities of singers: Ethiopian singers are considered to be good if they have a melismatic and loud voice, but if one shouts without wavering tones in the style of Ingurguro and Zefen music - he is called `Chuahi or Gagano´ (vociferous).
+
+
+If one sings in a deep or low growling voice in Zefen style, he won't deserve the name of Tiru Zefagne or Zemari. The one who is considered to be good or even the best singer is the one who knows a variety of song texts and the singing characteristics of all the musical styles.
+
+Secular music of Ethiopia is classified in the following manner:
+Mode: 7 modes 
+
+1. Qedamai Silt, ( Tizita)
+2. Dagmai Silt (Ambasell)
+3. Salisai Silt (bati)
+4. Rabai Silt ( multi modes)
+5. Hamsai Silt ( Anchihoye)
+6. Sadisai Silt ( Gererso type music)
+7. Sabai Silt ( Adere´s chromatic type)
+
+Sacred music 
+Mode: 3 modes
+
+1. Geez
+2. Izil
+3. Ararrai
+
+Sacred Music Styles: 
+
+1. YeQoma 
+2. Yebetelhem
+3. Yeachabir
+4. Wonchere etc.
+
+
+Yared´s music composition based on different seasons of the year: 
+
+
+Zemene Yohanis : i) from Meskerem 1st to Meskerem 26
+                          ii) from Meskerem 26 to Hidar 6 (Woriha tsige)
+
+Zemene Merawi : i) from Tahisas 29 to Tir 30
+                         ii) from Yekatit 1st to Miazia 29 (Woriha tsome)
+
+Zemene Kiremit : i) from Meazia 29 to the middle od Sene (Woriha tinsae)
+                          ii) from Middle of Sene to Meskerem (Kiremit)
+
+These distributions of yared musical compositions are used according to Julian calendar. 
+
+Singing Techniques: 
+
+The vocal organ which consists of lungs, larynx, pharunx, nose, mouth as means of creating a voice are registerd as follows:
+1. Yederet dimits (chest)
+2. Yegurero dimits (larynx)
+3. Yeras dimits (head)
+
+
+
